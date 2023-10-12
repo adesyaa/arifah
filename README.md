@@ -1,0 +1,2 @@
+# arifah
+jangan menyerah
